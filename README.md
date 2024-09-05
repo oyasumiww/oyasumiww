@@ -1,3 +1,3 @@
 
-![art](https://github.com/user-attachments/assets/84b1c091-3dcf-49fd-a2e7-24309e3a51c0)
-by me
+![IMG_20240905_144232](https://github.com/user-attachments/assets/497f28a4-6c68-477c-869a-44442cc759d1)
+
